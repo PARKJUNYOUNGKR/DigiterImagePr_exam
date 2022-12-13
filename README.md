@@ -6,6 +6,13 @@
 
 ![image](https://user-images.githubusercontent.com/96164365/207240864-717a0ce8-5be2-4c03-844d-ab3202ee2676.png)
 
+![image](https://user-images.githubusercontent.com/96164365/207248465-96f3c074-4904-4809-b8b4-128c642feccf.png)
+
+![image](https://user-images.githubusercontent.com/96164365/207248492-02e73898-557c-4886-8a24-9f0233311ec6.png)
+
+![image](https://user-images.githubusercontent.com/96164365/207248534-bb678e91-f405-4103-93c6-41d38aef3141.png)
+
+
 ---
 
 ### Quiz 2
